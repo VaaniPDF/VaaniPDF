@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Vaani, a first year student of Economics and part time writer!
-- 📫 To reach out to me, mail me @ vaani.prasad@ecoa.christunviersity.in 
+- 📫 To reach out, mail me @ vaani.prasad@ecoa.christunviersity.in 
